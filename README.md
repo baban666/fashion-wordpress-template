@@ -82,5 +82,5 @@
 
 ---
 
-**💻 [View Demo](https://bloggloss.alicethemes.com/)** | **📥 [Download Fashion WordPress Theme Lifestyle Blog Website Template – BlogGloss](https://first-design-company.com/product/fashion-wordpress-theme-lifestyle-blog-website-template-bloggloss/)**  
+**💻 [View Demo](https://bloggloss.alicethemes.com/)** | **📥 [Download Fashion WordPress Theme Lifestyle Blog Website Template – BlogGloss Pro](https://first-design-company.com/product/fashion-wordpress-theme-lifestyle-blog-website-template-bloggloss/)**  
 

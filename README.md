@@ -1,4 +1,4 @@
-# Bloggloss WordPress Theme  
+# Fashion WordPress Theme Lifestyle Blog Website Template – BlogGloss
 **by AliceThemes**  
 
 Bloggloss** is one of the most versatile and elegant WordPress themes for lifestyle bloggers. Designed with simplicity and style, it caters to personal bloggers, lifestyle influencers, and small businesses. Whether you're looking for a **fashion blog template** or a sleek **lifestyle blog WordPress theme**, Bloggloss delivers a perfect mix of aesthetics and functionality.  
